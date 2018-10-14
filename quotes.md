@@ -3,4 +3,4 @@ good idea?”
 - Dana Newman, Found in Prague
 
 Prague is the Paris of '900  
-- Anonymous 
+- Anonymous
